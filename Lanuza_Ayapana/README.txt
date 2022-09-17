@@ -1,1 +1,1 @@
-September 14,2022 - Intialize new folder and repository in Github account.
+September 14,2022 -  Initialize new folder and repository in Github account.

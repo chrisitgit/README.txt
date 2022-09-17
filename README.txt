@@ -47,3 +47,4 @@ Patigayon Renzo Marvin | prenzomarvin@gmail.com
 Sus Jasper | susrepsaj@gmail.com
 Gelua Julio | juliogelua78@gmail.com
 Villamoya, Nathan John H. | nathanjohn.villamoya@gmail.com
+Lanuza, Rovic Angelo B. | rovicangelolanuza9@gmail.com
