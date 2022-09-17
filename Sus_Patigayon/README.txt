@@ -1,0 +1,1 @@
+September 15, 2022 - Initiallize New Folder And Repository in GitHub Account. 
